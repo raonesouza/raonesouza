@@ -50,7 +50,7 @@ Tenho experiência com sistemas legados de alta criticidade, o que me deu sólid
 
 ## 📫 Contato
 
-- 📧 **Email:** [seu-email@gmail.com]
+- 📧 **Email:** [raonesouza@msn.com]
 - 💼 **LinkedIn:** Em breve
 - 📍 **Localização:** Curitiba, PR
 
